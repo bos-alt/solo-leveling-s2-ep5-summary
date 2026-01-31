@@ -2,7 +2,9 @@
 
 > **Meta Description:** Solo Leveling S2 Episode 5 full summary & spoilers: Watch how Jin-Woo stealthily saves the guild during the High Orc raid. Hindi & English subs available. ⚡
 
-![Solo Leveling S2 Ep5 Jin-Woo Stealth Carry & High Orc Ambush Summary](https://raw.githubusercontent.com/bos-alt/solo-leveling-s2-ep5-summary/main/me/solo-leveling-ep5-player.jpg)
+<a href="https://www.effectivegatecpm.com/kxu66vew?key=3f4e67a3db4589b1aef112a3067fbf92">
+  <img src="https://raw.githubusercontent.com/bos-alt/solo-leveling-s2-ep5-summary/main/me/solo-leveling-ep5-player.jpg" alt="Solo Leveling S2 Ep5 Jin-Woo Stealth Carry & High Orc Ambush Summary" width="100%">
+</a>
 
 **⚡ LATEST UPDATE (Feb 7):** Episode 5 full summary is live! Watch the key highlights of the Shadow Monarch's unseen battle below.
 
@@ -45,7 +47,7 @@ A: The final boss is the High Orc Shaman, **Kargalgan**, whose presence is tease
 ## 🔥 Episode 6 Predictions & Full Preview
 The climax of the raid is here! The Shadow Monarch is about to let loose. Will Jin-Woo use "Arise" in front of the guild?
 
-👉 [**Read Solo Leveling Season 2 Episode 6 Release Date & Spoilers Here →**](https://github.com/bos-alt/solo-leveling-season-2-episode-6-release-date-summary)
+👉 [**Click Here to Watch Solo Leveling S2 Episode 6 Spoilers →**](https://github.com/bos-alt/solo-leveling-season-2-episode-6-release-date-summary)
 
 ---
 
