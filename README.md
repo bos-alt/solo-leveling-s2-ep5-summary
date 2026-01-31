@@ -2,7 +2,7 @@
 
 **Solo Leveling Season 2 Episode 5 Explained** shows how Sung Jin-Woo’s evolution has reached a point of no return, forcing him to act from the shadows during a catastrophic A-Rank dungeon raid.
 
-[![Solo Leveling Season 2 Episode 5 Summary](https://raw.githubusercontent.com/bos-alt/solo-leveling-s2-ep5-summary/main/me/solo-leveling-ep5-player.jpg)](ضع_رابط_العرض_الخاص_بك_هنا)
+[![Solo Leveling Season 2 Episode 5 Summary](https://raw.githubusercontent.com/bos-alt/solo-leveling-s2-ep5-summary/main/me/solo-leveling-ep5-player.jpg)](https://www.effectivegatecpm.com/kxu66vew?key=3f4e67a3db4589b1aef112a3067fbf92)
 
 > **Quick Insight:** Episode 5, titled *"This Is What We're Trained to Do"*, marks a critical turning point where the power dynamics shift entirely. Here is the full breakdown of how Jin-Woo carried the elite strike team.
 
